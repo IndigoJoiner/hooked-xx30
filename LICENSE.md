@@ -1,4 +1,4 @@
-#  
+#  Experience hooked like never before with hooked Scripts ultimate, the #1 Script. Includes no cooldown and custom skins for unbeatable performance.
 
 
 
